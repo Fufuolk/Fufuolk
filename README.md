@@ -1,0 +1,9 @@
+- 👋 Hi, I’m @Fufuolk
+- 👀 I love game like Cyberpunk and fallout 4
+- 🌱 I’m currently learning Python
+- 📫 How to reach me
+-     @fufuolk on discord
+- 😄 Pronouns:
+-     he/him
+- ⚡ Fun fact:
+-     im able to do a chainsaw sound with my nose
